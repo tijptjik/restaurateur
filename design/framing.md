@@ -24,3 +24,4 @@ The restaurant as:
 * therapy. Telling your server all about your life and find someone who actually listens to you, nods at all the right times and can hardly disagree with whatever you're saying -  they'll never know the other side of the story... (**Ms Qin**)
 * a place of accelerated intimacy. A place to bring mistresses and escorts where the restaurant is just the stage of foreplay, pretending that there's more of a personal relationship than there actually is/or the place where you take your mistress and make them feel like you're taking them out in public and spending proper time with them although you probably aren't - restaurant staff is keeper of many secrets. (**Ms Qin**)
 * a place for business. With private rooms, wine flowing, and way too many cigars and god knows what deals are struck. (**Ms Qin**)
+* as place with tripped up roles, where the people are sauteed by cauliflowers (**Stepherson**)
